@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Draaade
+- 👀 I’m interested in games, meeting new people and tech.
+- 🌱 I’m currently learning software engineering, coding languajes and a bit of cyber security.
+- 💞️ I’m looking to collaborate on coding projects or helping in general.
+- 📫 How to reach me: private msg.
